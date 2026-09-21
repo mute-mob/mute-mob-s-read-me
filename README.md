@@ -1,2 +1,3 @@
-# mute-mob-s-read-me
-My ReadME (remade)
+$\Large\textcolor{#be9aff}{\textsf{★ᯓ𝕄𝕦𝕥𝕖 𝕄𝕠𝕓ᯓ★}}$  
+
+
